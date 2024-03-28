@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning python and also will learn other programming languages as soon as I get the time to do so.
 - 💞️ I'm currently a high school student (12th std for Indians) preparing for my college/university exams and I would continue to learn and write code as love it.
 - 📫 You could reach me out on...
-- instagram at- https://www.instagram.com/__.sumit10.__/?next=%2F
+- instagram at- https://www.instagram.com/__.sumit10.__
 - X at- https://twitter.com/SumitBhagat9266
 - ⚡ Hobbies: I love outdoor sports and going to the gym.
 
