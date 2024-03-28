@@ -5,6 +5,7 @@
 - 📫 You could reach me out on...
 - instagram at- https://www.instagram.com/__.sumit10.__
 - X at- https://twitter.com/SumitBhagat9266
+- Linkedin at- https://www.linkedin.com/in/sumit-bhagat-065147289
 - ⚡ Hobbies: I love outdoor sports and going to the gym.
 
 <!---
